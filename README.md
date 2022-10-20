@@ -25,3 +25,8 @@ Not a lot of notable past work, but that's why I am trying to find jobs! :-)
 I can take robux, PayPal USD or Roblox limiteds.
 
 I don't have a minimum payment, anything I get is greatly appreciated unless extremely lowballed.
+
+# Commission terms
+I have the right to deny/resign any commission or job with a valid cause.
+
+I will be willing to fix anything broken or bugged after I finish or resign. ( 2 changes maximum )
